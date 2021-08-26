@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SomeRussianGuy14
+- 👀 I’m interested in Emergency Alert System, NOAA Weather Radios, Specific Area Message Encoding, The Weather Channel, Television.
+- 🌱 I’m currently learning nothing...?
+- 💞️ I’m looking to collaborate on ...?
+- 📫 How to reach me (my adress is a secret :))...
